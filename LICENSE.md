@@ -1,4 +1,4 @@
-#  
+#  vip evade Script is the best evade Script, featuring instant win and infinite resources. Safe and powerful for all your needs.
 
 
 
